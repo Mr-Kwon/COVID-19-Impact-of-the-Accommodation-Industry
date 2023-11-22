@@ -1,0 +1,1 @@
+# COVID-19-Impact-of-the-Accommodation-Industry
